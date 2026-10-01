@@ -1,1 +1,0 @@
-# Practica-6-Atributos-Texto---BMMA
